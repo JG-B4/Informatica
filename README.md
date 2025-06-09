@@ -22,3 +22,8 @@ https://fatecspgov-my.sharepoint.com/:x:/g/personal/joao_oliveira378_fatec_sp_go
 ## Quarta Atividade: Power BI
 ![image](https://github.com/user-attachments/assets/2756a2fa-c207-442a-8690-1ed14b7174b1)
 https://fatecspgov-my.sharepoint.com/:u:/g/personal/joao_oliveira378_fatec_sp_gov_br/EXuskpG0WjNDojq5n5WuWT0BD9nQ2QqBPMiyQCOr8MpFwQ?e=WP3zIQ
+
+## Panelas, Produtos e Sorvetes
+
+![image](https://github.com/user-attachments/assets/f90f12dd-ee49-473c-ada4-4684a0bc9665)
+
