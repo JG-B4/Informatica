@@ -27,3 +27,7 @@ https://fatecspgov-my.sharepoint.com/:u:/g/personal/joao_oliveira378_fatec_sp_go
 
 ![image](https://github.com/user-attachments/assets/f90f12dd-ee49-473c-ada4-4684a0bc9665)
 
+## Atividade Prova Nº 6: Fase de Produção e Desevolvimento
+
+
+
